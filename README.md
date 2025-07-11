@@ -1,6 +1,6 @@
 # 🚀 Beylikdüzü Escort – Hızlı, Güvenli ve Gizli Hizmetler 🕶️
 
-[![TIKLA SİTEYE GİT](kiz.png)](https://t.me/alvannis)
+[![TIKLA SİTEYE GİT](kiz.png)](https://pezevenkdayi.xyz)
 
 ---
 
